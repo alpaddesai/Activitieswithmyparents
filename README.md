@@ -1,6 +1,6 @@
 # Activities with my parents
 
-![image](ActivitesWithParents.jpg)
+![image](Activitieswithmyparents.jpg)
 
 ![image](EthicsandExcellence.png)
 
